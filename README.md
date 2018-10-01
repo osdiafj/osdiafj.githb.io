@@ -1,1 +1,1 @@
-# osdiafj.githb.io
+# osdiafj.github.io
